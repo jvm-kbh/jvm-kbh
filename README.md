@@ -3,3 +3,9 @@
 
 - 🌱 I’m currently learning ...
    - [Study Book And Article](https://www.notion.so/Study-public-ff46f09255534b8c847f8d3c90be4832?pvs=4)
+ 
+- Here my resume
+   - [resume](https://bit.ly/47yUHNG)
+ 
+- Here my portpolio
+   - [portpolio](https://bit.ly/47yUHNG)
