@@ -5,7 +5,7 @@
    - [Study Book And Article](https://www.notion.so/Study-public-ff46f09255534b8c847f8d3c90be4832?pvs=4)
  
 - Here my resume
-   - [resume](https://bit.ly/4cI4LHd)
+   - [resume](https://bit.ly/3W3FIcb)
  
 - Here my portpolio
    - [portpolio](https://bit.ly/3XNXCRs)
